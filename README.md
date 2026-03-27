@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# Heyoo! I'm Daniel, an absolute bafoon 👍  
-jkjk unless
+# Heyoo, I'm Daniel!
+wao such empty
